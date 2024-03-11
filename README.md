@@ -7,11 +7,11 @@ Yosintv: https://mob.yosin-tv.net/
 Sportek: https://totalsportek.pro/
 Score808: https://livesports808.live/ and https://livesports808.us/
 
-**To get free cracked apps for Macbook**
+**To get free apps for Macbook**
 
 Xmac: https://xmac.app/
 
-**To get free cracked apps for Windows**
+**To get free apps for Windows**
 
 Mazterize: https://mazterize.cc/
 
