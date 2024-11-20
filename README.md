@@ -23,7 +23,11 @@ Fmovies: https://ww4.fmovies.co/24/
 
 Hdmovies: https://hdmovies.link/
 
+**To create designs and logos for free**
+Canva: Download Canva app and use free trial
 
+**To make beautiful presentatios for free**
+Beautiful.ai: log on to the website and use free trial. use the prompt and sit back while it creates beautiful presentation for you. 
 
 
 
